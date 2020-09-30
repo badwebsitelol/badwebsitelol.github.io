@@ -1,1 +1,1 @@
-# badwebsitelol.github.io
+# bad_websitelol.github.io
